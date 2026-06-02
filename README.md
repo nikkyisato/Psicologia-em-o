@@ -1,2 +1,2 @@
-# Psicologia-em-o
+# Psicologia-em-outra-pespectiva
 psicologia
